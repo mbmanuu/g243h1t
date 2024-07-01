@@ -1,2 +1,2 @@
-# Dupla
-## Sakai (03), Ryu (27)
+# Josué Carvalho - 21
+# Glawber Eduardo - 12
